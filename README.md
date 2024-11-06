@@ -17,8 +17,8 @@ What sets me apart as a candidate is my true passion for leveraging machine lear
     
 My unique work history gives me extraordinary experience and unusual perspective during problem solving, which may be beneficial for developing applications, machine learning tasks and programming. Even without formal education as programmer, I have solid background and readiness to quickly adopt new knowledge and technologies.
 
-											Aleksandar Milojković
-											
-											Mobile/Viber: +381 60 1 654 876
-											
-											e-mail: zabackermit@gmail.com 
+									Aleksandar Milojković
+									
+									Mobile/Viber: +381 60 1 654 876
+									
+									e-mail: zabackermit@gmail.com 
